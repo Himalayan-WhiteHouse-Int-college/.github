@@ -1,1 +1,1 @@
-# Himalayan WhiteHouse International Public
+<p align="center"> <b>Himalayan WhiteHouse International Public</b></p>
