@@ -1,1 +1,1 @@
-<p align="center"> <b>Himalayan WhiteHouse International Public</b></p>
+<p align="center"><b><h1>Himalayan WhiteHouse International Public</h1></b></p>
